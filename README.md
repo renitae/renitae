@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-i'm renita! i live in austin, tx. my pronouns are she/her. i love to read, draw/paint, sing, and hang out with friends in my free time. my favorite shows are the office, glee, and gilmore girls :)
+i'm renita! i live in austin, tx. my pronouns are she/her. i love to read, draw/paint, sing, and hang out with friends in my free time. my favorite shows are: the office, glee, and gilmore girls. also, i'm obsessed with boba tea :)
 
 
 <!--
